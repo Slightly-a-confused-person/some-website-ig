@@ -1,7 +1,7 @@
 
 
 # BREAKING NEWS: BALLER IS COMING
-##usegithubtowastemicrosoftstime
+# #usegithubtowastemicrosoftstime
 
 join the NOT discord for updates. (it doesn't exist)
 
